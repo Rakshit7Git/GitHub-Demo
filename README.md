@@ -3,9 +3,6 @@
 This is my first project
 <br>
 how are you world
-think so great
-thank u 
-<br>
-tagsyuhcvbjxh
+
 
 
